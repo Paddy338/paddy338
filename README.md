@@ -11,7 +11,12 @@
   - In older times, I programmed with Visual Basic, following a tutorial book.
   - I'm not that kind of expert at OI - only about konjac level.
 
-# Random Snaps
+# Something about ELECTRONIC MANAGEMENT in my class
 $$
 \tiny{3+37=40}
 $$
+
+31, 37  
+> Neither can live while the other survives.
+
+(It just popped into my mind, that's all!)
