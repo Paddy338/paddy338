@@ -12,11 +12,6 @@
   - I'm not that kind of expert at OI - only about konjac level.
 
 # Something about ELECTRONIC MANAGEMENT in my class
-$$
-\tiny{3+37=40}
-$$
-
-31, 37  
 > Neither can live while the other survives.
 
 (It just popped into my mind, that's all!)
